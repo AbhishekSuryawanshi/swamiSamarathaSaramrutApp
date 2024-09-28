@@ -1,7 +1,7 @@
 
 # Privacy Policy for Swami Saramrut App
 
-**Effective Date**: [Insert Date]
+**Effective Date**: September 27, 20224
 
 ## Introduction
 
